@@ -8,18 +8,18 @@
 
 
 <p><b>
-<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/Untitled47_20260510081657.png" width="160">
+<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/gif_18182f479ba52c82d689ae33dc06f92c.gif" width="160">
 </b></p>
 
-<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/Cool%20Text%20-%20spoke%20507869661870798.png" width="160">
+<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/cooltext508309160021909%20(1).png" width="160">
 
 
-$\text{\color{#30161f} or⠀ಇ⠀sylvester⠀✧⠀he⠀╱⠀him }$\
-$\text{\color{#311617} aroacespec⠀⠀♪⠀⠀queerplatonic }$\
-$\text{\color{#26482c} ❛⠀19⠀:⠀ꕮ⠀physment disabled }$
+$\text{\color{#ffffff} decay⠀ಇ⠀holyterminal⠀✧⠀ask }$\
+$\text{\color{#ffffff} aroacespec⠀⠀♪⠀⠀ambiamorous }$\
+$\text{\color{#ffffff} ❛⠀19⠀:⠀ꕮ⠀physment disabled }$
 
 
-![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=211744&label=he+wanted+you+to+do+it.)
+![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=000000&label=I+WON'T+FALL+PREY+TO+YOUR+DARN+TWISTED+PLANS)
 
 </div>
  </td>
